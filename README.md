@@ -1,0 +1,2 @@
+# DISCOM-MSEDCL-JE-AE-EXAM-ELECTRICAL-ENGINEERING-SYLLABUS
+Course is designed to help both graduate electrical engineers and employed professionals preparing for entry level, promotion exams for JE, AE, DyE and EE posts. We specialize in competitive and university exams covering a range of key exams including MSEB/DISCOM/GENCO/TRANSCO, SSC/CGL, MPSC/Technical, RRB, Metro, GATE, IES and campus interviews.
